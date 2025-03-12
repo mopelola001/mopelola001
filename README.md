@@ -2,6 +2,6 @@
 - 👀 I’m interested in
 - 🌱 I’m currently learning at Vephla University
 - 💞️ I’m looking for junior data analyst roles
-- 📫 How to reach me https://www.linkedin.com/in/mopelola-adeyemi-747383223?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+- 📫 How to reach me https://www.linkedin.com/in/mope001 github.com/mopelola001 https://medium.com/@mopelola and datascienceportfol.io/mopelola001
 - 😄 Pronouns: she
 - ⚡ Fun fact: I love meeting new people and learning from them.
